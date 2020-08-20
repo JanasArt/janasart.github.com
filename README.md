@@ -1,1 +1,0 @@
-# janasart.github.com
